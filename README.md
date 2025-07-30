@@ -5,6 +5,7 @@ JimJam Safaris &amp; Tours Africa is a wildlife and cultural immersion initiativ
 
 **### Africa Safari Experiences to Inspire You.**
 **Uganda**
+
 [2-Day Uganda Gorilla Trekking From Foothills](https://jimjamsafaris.com/gentle-giants-of-uganda/)
 
 [3-Day Gorilla Trekking Uganda & Cultural Tour](https://jimjamsafaris.com/3-day-uganda-gorilla-trekking-tour/)
@@ -20,6 +21,7 @@ JimJam Safaris &amp; Tours Africa is a wildlife and cultural immersion initiativ
 [10-Day Uganda Safari – Primates & Wildlife Adventure](https://jimjamsafaris.com/10-days-uganda-safari/)
 
 **Rwanda**
+
 [1-Day Rwanda Gorilla Trek in Volcanoes](https://jimjamsafaris.com/rwanda-gorilla-trek-itinerary/)
 
 [2-Day Gorilla Trekking Rwanda Tour](https://jimjamsafaris.com/2-day-rwanda-gorilla-tour/)
@@ -33,6 +35,7 @@ JimJam Safaris &amp; Tours Africa is a wildlife and cultural immersion initiativ
 [7-Day Rwanda Gorillas & Wildlife Safari](https://jimjamsafaris.com/7-days-rwanda-safari/)
 
 **Kenya**
+
 [3-Day Masai Mara Explorer Adventure](https://jimjamsafaris.com/3%e2%80%91day-mara-explorer-adventure/)
 
 [A Perfect 3-Day Kenya Budget Flying Safari](https://jimjamsafaris.com/3-day-fly-in-budget-safari/)
@@ -47,6 +50,7 @@ JimJam Safaris &amp; Tours Africa is a wildlife and cultural immersion initiativ
 
 
 **Tanzania**
+
 [3-Day Serengeti Budget Safari in Tanzania](https://jimjamsafaris.com/3-day-serengeti-budget-safari/)
 
 [A Romantic Serengeti Honeymoon Package](https://jimjamsafaris.com/serengeti-honeymoon/)
@@ -60,6 +64,7 @@ JimJam Safaris &amp; Tours Africa is a wildlife and cultural immersion initiativ
 [8 Days Tanzania Safari Itinerary (Wildlife Viewing)](https://jimjamsafaris.com/8-days-tanzania-safari/)
 
 **Multi-Country**
+
 [Great Migration And Gorilla Trekking Itinerary](https://jimjamsafaris.com/migration-and-gorilla-trekking/)
 
 [Botswana Safari And Rwanda Gorilla Trekking](https://jimjamsafaris.com/botswana-safari-and-rwanda-gorilla-trekking/)
@@ -79,6 +84,7 @@ JimJam Safaris &amp; Tours Africa is a wildlife and cultural immersion initiativ
 [14 Day Tanzania Safari Adventure Itinerary](https://jimjamsafaris.com/14-day-tanzania-adventure/)
 
 [14 Days Best Of Uganda, Rwanda and Tanzania Tour](https://jimjamsafaris.com/rwanda-uganda-tanzania-safari/)
+
 
 In Southern Africa, JimJam Safaris invites you to explore the lush wetlands of [Botswana’s Okavango Delta](https://jimjamsafaris.com/the-okavango-delta-botswana/), go mokoro‑canoeing under starry skies, and track endangered rhinos in South Africa’s Hluhluwe–iMfolozi Park. Our eco‑friendly lodges and camps prioritize conservation and local empowerment, partnering with grassroots projects to protect wildlife habitats and uplift communities. With personalized luxury, seamless logistics, and a deep commitment to sustainability, we ensure every journey inspires a lifelong passion for Africa’s natural splendor.
 
